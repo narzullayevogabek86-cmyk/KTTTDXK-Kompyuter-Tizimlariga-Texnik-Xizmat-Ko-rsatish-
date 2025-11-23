@@ -1,0 +1,1 @@
+# KTTTDXK-Kompyuter-Tizimlariga-Texnik-Xizmat-Ko-rsatish-
